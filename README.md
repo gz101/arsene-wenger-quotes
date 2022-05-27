@@ -1,1 +1,1 @@
-# inspirational-quotes
+# arsene-wenger-quotes
